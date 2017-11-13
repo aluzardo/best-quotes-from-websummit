@@ -14,3 +14,12 @@
 12. "You are making a revolution... You are the transformers" - Marcelo Rebelo de Sousa
 13. "Imagination is the most positive knowledge. The Robotics can’t do that" - Ben Goertzel
 14. "Create your culture, the culture of empowerment. Be much more open, not loneliness. Creating a team, not to feel that you’re best in everything" - Gillian Tans
+15. "My four words, 'keys to success': Gamble, cheat, lie, and steal, 
+
+Gamble: Gamble your best shot in life. Dare to take risks. Life has got to be a great adventure — and it is,
+
+Cheat: Cheat those who would have you be less than you are. Surround yourself with positive people, uplifting people, people who want to see you do well. Turnaround and help them, and you're truly a champion.
+
+Lie: Lie in the arms of those that you love. Hey, when it comes right down to it, that's all we've got is one another. Never take the love that you give, or the love that you receive for granted.
+
+And finally, steal. Steal every moment of happiness. Live everyday as if it was your last, because we never know when that day is going to come." - Caitlyn Jenner
