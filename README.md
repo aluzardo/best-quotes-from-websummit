@@ -23,3 +23,6 @@ Cheat: Cheat those who would have you be less than you are. Surround yourself wi
 Lie: Lie in the arms of those that you love. Hey, when it comes right down to it, that's all we've got is one another. Never take the love that you give, or the love that you receive for granted.
 
 And finally, steal. Steal every moment of happiness. Live everyday as if it was your last, because we never know when that day is going to come." - Caitlyn Jenner
+
+
+Feel free to add your quotes to the list
